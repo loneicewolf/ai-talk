@@ -26,7 +26,7 @@ i just, feel this topic is, very vaguely defined.
 
 ### ANALOGY: AI SLOP and RACISM IRL
 **Many saying ai slop, and stuff. which to me sounds like just digital racism.**
-hat might actually sting a bit if ur not racist but u dont like ai, but let me get this clear: there is a right way and a wrong way to discuss things, if you shout at people who using ai "ai slop! cl*nker!" then thats the same as saying slurs to other people because of their color, religion, gender, or something else.
+that might actually sting a bit if ur not racist but u dont like ai, but let me get this clear: there is a right way and a wrong way to discuss things, if you shout at people who using ai "ai slop! cl*nker!" then thats the same as saying slurs to other people because of their color, religion, gender, or something else.
 the right way? is to ask questions. show some maturity. show that restraint, you *can* type "ai slop" but..is that really the life we want to live? do we..feel better..if we comment on all posts online "ai slop slop slop slop" ? .. if you do, then..uhm, (im honest:i  dont know what to say in this case so i will say uhm we are all different, we all have our ways to live, i do hope u find something..slightly more productive to do, maybe drawing? maybe\*), 
 
 # MY QUESTION FOR YOU
