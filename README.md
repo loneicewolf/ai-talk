@@ -1,4 +1,17 @@
 # ai-talk
+# IF You hate AI do NOT continue, this is a self reflection, a mini essay,
+
+```
+
+ 
+ 
+ 
+
+ 
+ 
+ 
+```
+
 my talk on ai, a very heavy and controversial topic
 
 ### before you read further: 
