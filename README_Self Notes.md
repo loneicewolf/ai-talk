@@ -1,7 +1,10 @@
 # ai-talk
 # IF You hate AI do NOT continue, this is a self reflection, a mini essay,
 
+
+
 ```
+"afraid" "hesitate" https://bsky.app/profile/loneicewolf.bsky.social/post/3m2wymvrowc2j
 
  
  
