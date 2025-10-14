@@ -9,6 +9,6 @@ it grew from these 2 threads i made on bsky:
 
 ## a bit of a speech of open-mindness
 
-*Are we going to be remembered - as the people - who argued in circles about what counts as art - or as the people who tried to fix the problems instead?*
-*If now AI ART is not ART, then please define art universally!*
-thank you.
+*Are we going to be remembered as the people - who argued in circles using hate and slurs about what counts as art - or as the people who tried to fix the problems of un-ethical usage of art instead?*
+*If now AI ART is not ART, even with ethical and consent then please define art universally!*
+[thank you.](https://bsky.app/profile/did:plc:37lcyqfy4d5r25jvgtabe5kn/post/3m35xjsbeq22b)
